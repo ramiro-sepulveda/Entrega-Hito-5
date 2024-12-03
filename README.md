@@ -6,4 +6,4 @@ https://docs.google.com/presentation/d/1FwH7dSuf5-7mdc_jdvB2xA_pM_Yp6-5h8incYJ3B
 
 - Video Individual
   
-Pendiente...
+https://youtu.be/n05mvTtkDt8
